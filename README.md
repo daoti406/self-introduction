@@ -1,4 +1,4 @@
-﻿# Hi, I'm Xiaohua Lyu 👋
+﻿# Hi, I'm Xiaohua Lvv 👋
 
 🚀 **Frontend Developer | AI Enthusiast | 2027 Software Engineering Candidate**
 
